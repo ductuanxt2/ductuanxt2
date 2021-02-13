@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-## I...
+- # I...
 - ... like to play games on [Roblox](https://roblox.com) 🎮
 - ... like to create random things 🤔
 - ... like to use [Discord](https://discord.com) for texting 💬
