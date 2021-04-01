@@ -4,7 +4,7 @@
 - My tag on Discord is 《P》Shadow#1115 in case you want to know
 - [My website](https://ductuanxt2.ga)
 
-# Statistics
+# My Statistics
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs?username=ductuanxt2&count_private=true&layout=compact&theme=prussian)](https://github.com/ductuanxt2/ductuanxt2/)
 
