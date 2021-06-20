@@ -1,6 +1,6 @@
 # Hey There!
 - You can call me "ductuanxt2" or "Shadow".
-- I like to code random things, and play games.
+- I like to code random things for fun, and play games.
   - Mostly playing Roblox, or some offline game on mobile.
 - My tag on Discord is 《P》Shadow#1115 in case you want to know.
 - [My website](https://ductuanxt2.ga).
