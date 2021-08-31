@@ -1,8 +1,8 @@
 # Hey There!
-- You can call me "ductuanxt2" or "Shadow".
+- My name on the internet is ductuanxt2.
 - I like to code random things for fun, and play games.
   - Mostly playing Roblox, or some offline games on mobile.
-- My tag on Discord is DShadow™#1115 in case you want to know.
+- My tag on Discord is ductuanxt2#2831 in case you want to know.
 - [My website](https://ductuanxt2.ga).
 
 # My Statistics
