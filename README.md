@@ -2,7 +2,6 @@
 - My name on the internet is ductuanxt2.
 - I like to code random things for fun, and play games.
   - Mostly play Roblox, or some mobile games.
-- My tag on Discord is ductuanxt2#2831 in case you want to know.
 - [My website](https://ductuanxt2.vercel.app).
 
 # My Statistics
