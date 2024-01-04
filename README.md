@@ -1,7 +1,7 @@
 # Hey There!
 - My name on the internet is ductuanxt2.
 - I like to code random things for fun, and play games.
-  - Mostly play Roblox, or some mobile games.
+  - Mostly play with friends, not much alone.
 - [My website](https://ductuanxt2.vercel.app).
 
 # My Statistics
