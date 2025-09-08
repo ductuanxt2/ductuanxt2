@@ -1,7 +1,6 @@
 # Hey There!
 - My name on the internet is ductuanxt2.
-- I like to code random things for fun, and play games.
-  - Mostly play with friends, not much alone.
+- I like to do random stuff for fun.
 - [My website](https://ductuanxt2.vercel.app).
 
 # My Statistics
